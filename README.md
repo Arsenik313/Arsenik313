@@ -2,3 +2,5 @@
 - 🔨 | Py/Js
 - 💻 | Discord ID = 家 arsenik ZΞTA#1757
 - 📞 | Support Watsapp = +7 961 637-9808
+- 📝 | Condition Project = Comming Soon 
+- Condition = Updating 
